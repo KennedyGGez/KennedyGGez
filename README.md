@@ -1,7 +1,5 @@
 Opa, jóia?👍
-
 Bem vindo ao meu perfil
-
 Segue nóis que é sucesso
 
 
