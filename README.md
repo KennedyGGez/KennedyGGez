@@ -1,4 +1,5 @@
 Opa, jóia?👍
+Bem vindo ao meu perfil
 
 
 
@@ -6,4 +7,4 @@ Opa, jóia?👍
 
 
 
-![download](https://github.com/user-attachments/assets/50f0e850-16c2-4018-b52e-da172d2dfb5c)
+![download](https://github.com/user-attachments/assets/8c50c96a-f205-4981-9037-9daaec5c6cbc)
